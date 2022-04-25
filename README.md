@@ -1,0 +1,3 @@
+I’m a software engineer & infosec specialist from Wales 🏴󠁧󠁢󠁷󠁬󠁳󠁿 passionate about reducing gatekeeping, digital accessibility & mental health. I am a massive physics nerd and bookworm. 📚 I measure success by how much I smile. 💕
+
+I work in full time employment as a software engineer and develop solutions to help people learn about secure coding and the history of information security in my spare time. I’m also signed up to a 10 credit part time university course in Astronomy at Cardiff University which starts January 2022! 💫
