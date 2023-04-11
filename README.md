@@ -1,1 +1,1 @@
-I’m a software engineer & infosec specialist from Wales 🏴󠁧󠁢󠁷󠁬󠁳󠁿 passionate about reducing gatekeeping, digital accessibility & mental health. I am a massive physics nerd and bookworm. 📚 I measure success by how much I smile. 💕
+I’m a part-time software engineering teacher & part-time doctoral student researching operational technology security. ✌️🏼🤍 I find joy in little things and measure success by how much I smile. 🕊️
